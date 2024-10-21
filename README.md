@@ -34,3 +34,14 @@ Website: https://sodo696z.com
 Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodo_casino #số_đỏ_casino
+https://500px.com/manager?view=photos&filter=all
+https://www.pinterest.com/pin/1051801688021473416
+https://sodo696z.blogspot.com/2024/10/khuyen-mai-tai-casinosodo-nhan-thuong.html
+https://github.com/sodo696z/Khuy-n-M-i-T-i-casinosodo-Nh-n-Th-ng-c-Bi-t/blob/main/README.md
+https://sites.google.com/view/sodo696z/home/14
+http://so697z.xim.tv/tin-tuc/khuyen-mai-tai-casinosodo-nhan-thuong-dac-biet-new83409.html
+https://x.com/sodo696z8566/status/1848053541702861058
+https://www.diigo.com/item/note/b7g42/kjq1?k=5313b7b511b1634cfed61ccd2c3ccf58
+https://band.us/band/96481707/post/15
+https://zenwriting.net/2bk0b0u40f
+https://sodo696z.bcz.com/2024/10/20/nhan-thuong-khong-gioi-han-voi-khuyen-mai-hang-ngay-tai-casinosodo/
